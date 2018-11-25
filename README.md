@@ -1,2 +1,2 @@
-# lixu12138.github.io
+# 李旭的个人博客
 Myself Page
